@@ -1,4 +1,4 @@
-
+new Adobe Premiere Pro for macOS Preset | EQ + color-correction is the best Adobe Premiere Pro for macOS preset, featuring EQ and color-correction. Safe, efficient, and optimized
 
 
 
